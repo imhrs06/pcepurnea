@@ -1,0 +1,2 @@
+# pcepurnea
+Purnea College of Engineering, Purnea is a Government Engineering College established in 2017. Inaugural of this Institute was held on 17 Feb 2019 by the honorable chief minister of Bihar, Sri Nitish Kumar. It is affiliated to AKU, Patna. The College is under the Department of Science and Technology Patna, Bihar. The institute offers B.Tech in Civil Engineering, Electrical Engineering, Electronics and Communication Engineering and Mechanical Engineering. Each course has an intake capacity of 60 approved by AICTE, New Delhi.
